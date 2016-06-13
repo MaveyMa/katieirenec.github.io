@@ -16,6 +16,10 @@ katieirenec AT gmail
 
 Visit me online:
 [LinkedIn](https://www.linkedin.com/in/katieirenec)
+
+
 [Twitter](https://twitter.com/katieirenec)
+
 [Github](https://github.com/katieirenec)
+
 [Old blog](http://katieirenec.blogspot.com/)
